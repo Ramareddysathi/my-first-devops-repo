@@ -1,1 +1,3 @@
-rama reddy sathi 9-4-2025
+my favorite language devops
+my hobbys are travelling
+my role model is my father
